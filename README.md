@@ -10,3 +10,6 @@
 
 ## Kesan Pesan Cluster [21] Sejauh Ini 
 [Ka rehan dan kak laras baik dan ramah bintang 5 pokoknya dan untuk cluster 21 orang nya baik baik dan juga asik  , mantep dah pokoknya] 
+
+## Harapan Kuliah 
+[Saya berharap bisa berakir dan berkembang sesuai minat dan tujuan saya yaitu menjadi software engineer ] 
